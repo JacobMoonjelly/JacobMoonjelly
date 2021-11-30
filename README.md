@@ -3,7 +3,7 @@
 I previously worked as a diving instructor for 7 years, in Egypt, Maldives and Thailand, where my
 connection to the ocean grew, along with my sense of urgency to protect it.
 🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊🌊
-In the past 5 years I have been a part starting a company called Paralenz, where we enabled divers
+In the past 5 years I have been a part of starting a company called Paralenz, where we enabled divers
 to collect marine data for ocean science and conservation, by developing an under water action camera
 with built in sensors. (www.paralenz.com).
 
